@@ -16,4 +16,12 @@
 ### Задание 2
 ![1](https://github.com/user-attachments/assets/ba1be7c6-938a-46e2-a777-36a321537bf4)
 
+### Задание 3
+![2](https://github.com/user-attachments/assets/c2ebe6bc-7483-4b55-b728-1de42ef3f2d7)
+
+### Задание 4
+![3](https://github.com/user-attachments/assets/b8540060-0172-42b3-8e8a-bf3bdf52035d)
+
+### Задание 5
+![4](https://github.com/user-attachments/assets/83de25e5-fc8d-455e-a222-f4a2b9a86515)
 
